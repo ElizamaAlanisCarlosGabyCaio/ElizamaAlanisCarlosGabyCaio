@@ -1,4 +1,4 @@
-##Olá! eu sou a ELizama
+##Olá! eu sou a Elizama
 
 - 🌱 Estou estudando programação front-end
 
