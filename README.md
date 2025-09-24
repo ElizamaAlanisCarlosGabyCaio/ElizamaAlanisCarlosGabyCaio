@@ -9,4 +9,4 @@
 
   /ᐠ｡‸｡ᐟ\
 
- <img align="center" alt="" src="https://br.pinterest.com/pin/10555380364394978/">
+ <img align="center" alt="" src="https://i.pinimg.com/originals/31/ce/bb/31cebbf20d99fc589f45b7e5b78c8b08.gif">
